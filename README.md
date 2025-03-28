@@ -1,5 +1,5 @@
 ## Jo-R Rodriguez - @iamjmr
 
-Project Manager, Engineer, Sports Enthusiast.  
+Project Professional, ICT Specialist, Sports Enthusiast.  
 
 
